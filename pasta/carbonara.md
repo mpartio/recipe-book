@@ -3,7 +3,7 @@
 ## Ingredients
 
 - Tagliatelle
-- Bacon
+- Bacon (ham is ok too)
 - Eggs
 - Cream
 - Parmesan
